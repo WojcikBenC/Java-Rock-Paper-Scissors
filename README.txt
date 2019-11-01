@@ -1,0 +1,1 @@
+Launch, select the option you want to play, and click confirm.
